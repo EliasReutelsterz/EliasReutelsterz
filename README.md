@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @EliasReutelsterz and I study business mathematics @ Uni Mannheim.
+- 👋 Hi, I’m @EliasReutelsterz and I study mathematics @ TUM.
